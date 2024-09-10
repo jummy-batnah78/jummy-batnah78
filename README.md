@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @jummy-batnah78
 - 👀 I’m interested in data visualization and transformation 
-- 🌱 I’m currently learning data analysis 
-- 💞️ I’m looking to collaborate and learn more 
+- 🌱 I’m currently perfecting my skills and open to learning more  
+- 💞️ I’m looking to collaborate and learning  more 
 - 📫 How to reach me jummaibatnahgmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...you become better by helping others to be good 
